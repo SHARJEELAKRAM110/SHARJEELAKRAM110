@@ -49,7 +49,7 @@ I enjoy working on clean architectures, modern UI design, and efficient state ma
 - 💼 [LinkedIn](www.linkedin.com/in/sharjeelakram110)  
 - 🧠 [Medium](https://medium.com/@sharjeelakram110)  
 - 💻 [GitHub](https://github.com/SHARJEELAKRAM110/SHARJEELAKRAM110)  
-- ✉️ Email: **dawaits683@gmail.com**
+- ✉️ Email: **sharjeelakramofficial105@gmail.com**
 
 ---
 
